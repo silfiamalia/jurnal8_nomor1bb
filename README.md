@@ -1,0 +1,1 @@
+# jurnal8_nomor1bb
